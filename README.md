@@ -61,8 +61,9 @@
 ## Output:
 
 ![Screenshot 2024-12-19 133445](https://github.com/user-attachments/assets/c39f970e-3108-4844-9653-0c71b12f9ee0)
+![001](https://github.com/user-attachments/assets/577e7a58-7fa4-4546-8e56-be38fd100b5f)
 
-![Screenshot 2024-12-19 133531](https://github.com/user-attachments/assets/cc5f4c1f-0aa5-422e-9cba-11e85cda29b6)
+
 
 
 ### Name: BALA SARAVANAN K
